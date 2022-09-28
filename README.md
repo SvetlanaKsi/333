@@ -9,3 +9,5 @@
 * мотивированность
 
 **![Картинка](https://beautifoto.ru/wp-content/uploads/2019/07/5-7.jpg)**
+* позитив
+
